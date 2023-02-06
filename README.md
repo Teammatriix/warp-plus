@@ -27,9 +27,9 @@ A Tool for getting unlimited GB on Warp+ ( https://1.1.1.1/ )
 
 --------------------------------------------------------------------
 Join Our Telegram Channel
-1. Open 1.1.1.1 App
-2. Click on the Hamburger Menu Icon ☰
 ❶ https://t.me/teammatrixs
+2. Click on the Hamburger Menu Icon ☰
+
 ❷ https://t.me/teammatriix
 
 Follow us on
